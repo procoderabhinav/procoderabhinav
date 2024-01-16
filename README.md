@@ -3,3 +3,4 @@
 - 🌱 I’m currently learning Jquery
 - 💞️ I’m looking to collaborate on various platforms
 - 📫 You can reach me at abhinav13347@indianschoolrak.com or via WhatsApp at 00971581859002
+- I make websites free of cost for everyone. If you want your website to be coded just message me via WhatsApp or call me in the number 00971581859002
